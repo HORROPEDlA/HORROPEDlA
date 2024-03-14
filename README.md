@@ -4,7 +4,7 @@
 <img src="https://media.tenor.com/KUqVdS-snugAAAAi/reverse-1999-reverse-199.gif"width="285px">
 
 <p align="center">
-meow
+I made this account out of hatred and spite . Who the fuck is hoarding the @horropedia tag bro it ain't that serious 😭😭😭
 
 
 
